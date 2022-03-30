@@ -1,1 +1,1 @@
-# techxcx
+# tech
